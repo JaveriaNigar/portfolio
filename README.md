@@ -27,7 +27,7 @@ Please visit the **Projects** section of the live site for details on each repos
 Feel free to reach out:  
 - [LinkedIn](https://www.linkedin.com/in/javeria-nigar-252b312b5)  
 - [GitHub](https://github.com/JaveriaNigar)  
-- Email: your‑email@example.com
+- Email: nigarhaider86@gmail.com
 
 ---
 
